@@ -1,1 +1,1 @@
-Hard things are done here!
+Do hard things!
