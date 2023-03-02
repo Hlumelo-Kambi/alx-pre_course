@@ -1,1 +1,1 @@
-Do hard things!
+We do hard things here!
