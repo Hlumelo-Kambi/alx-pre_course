@@ -1,1 +1,1 @@
-DO hard things all day everyday!
+Hard things are done here!
